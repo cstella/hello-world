@@ -8,3 +8,7 @@ Click here to buy some of our sailing merchandise!
 
 
 Calendar booking coming soon!
+
+
+
+New information blah blah blah
