@@ -12,3 +12,5 @@ Calendar booking coming soon!
 
 
 New information blah blah blah
+
+Lexie is at the airport/traveling
