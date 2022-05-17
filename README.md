@@ -14,3 +14,8 @@ Calendar booking coming soon!
 New information blah blah blah
 
 Lexie is at the airport/traveling
+
+Welcome to our FIFA webpage.
+
+We want to provide global FIFA fans a home. 
+
